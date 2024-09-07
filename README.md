@@ -85,7 +85,7 @@ For more information or collaboration, please reach out to:
 
 **LinkedIn:** www.linkedin.com/in/arman-banik-43765028b
 
-**GitHub:** 
+**GitHub:** https://github.com/Major-Arman
 
 ---
 
